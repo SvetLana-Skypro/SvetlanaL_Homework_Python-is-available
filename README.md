@@ -1,1 +1,0 @@
-# SvetlanaL_Homework_Python-is-available
